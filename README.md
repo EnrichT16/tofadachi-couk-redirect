@@ -1,0 +1,1 @@
+# tofadachi-couk-redirect
